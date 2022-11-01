@@ -1,4 +1,4 @@
-# hola!!!
+# hei jeg er michael
 
 ## hi my names is michael and im probably stupid
 ### im norwegian
